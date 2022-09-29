@@ -6,6 +6,7 @@
 ![alt text](https://media.discordapp.net/attachments/1019914604937220119/1025147651668328569/Kijeloles_969.png) <br />
 ![alt text](https://media.discordapp.net/attachments/1019914604937220119/1025147652079366225/Kijeloles_970.png) <br />
 ![alt text](https://media.discordapp.net/attachments/1019914604937220119/1025156644344176711/unknown.png) <br />
+![alt text](https://media.discordapp.net/attachments/1019914604937220119/1025157701094866964/unknown.png) <br />
 
 ## [ shit protection ]
 ![alt text](https://media.discordapp.net/attachments/973288871133601832/1025122627544690708/unknown.png)
